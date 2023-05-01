@@ -1,1 +1,0 @@
-# fram-egg-misc-booth
